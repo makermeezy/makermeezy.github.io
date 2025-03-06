@@ -6,7 +6,7 @@ I am currently finishing my Etsy and Gumroad offerings. You can join the newslet
 The update frequency will be weekly, at maximum, and only if there are significant updates.
 
 Join My Newsletter for Updates (Website & Products)
-[Join Our Newsletter](https://forms.gle/ABCqbN3Degmd4oyN8)
+[Join The Newsletter](https://forms.gle/ABCqbN3Degmd4oyN8)
 
 I am accepting commission requests or inquiries at makermeezy@gmail.com. If you are interested in any of the
 black paper pad pieces on my social media pages, you can order an upscaled digital print or a reproduction
