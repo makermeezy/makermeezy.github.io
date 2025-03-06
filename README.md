@@ -16,6 +16,4 @@ is 16" x 20".
 [Follow me on Instagram](https://www.instagram.com/makermeezy/)
 
 Graphic Design Print-On-Demand Stores:
-[Check Out The Redbubble merch](https://www.redbubble.com/people/makermeezy/shop)
-
-[Check Out The Teepublic merch](https://www.teepublic.com/user/makermeezy)
+[Check Out The Redbubble merch](https://www.redbubble.com/people/makermeezy/shop) [Check Out The Teepublic merch](https://www.teepublic.com/user/makermeezy)
