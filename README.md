@@ -13,7 +13,7 @@ black paper pad pieces on my social media pages, you can order an upscaled digit
 on black canvas (which will be more pricey). At this point, the largest size I will be printing/creating 
 is 16" x 20".
 
-Current Base Price Breakdown (shipping handled by me):
+Current Base Price Breakdown (shipping handled by me):  
 8 x 10	$65  
 9 x 12	$70  
 12 x 12	$80  
